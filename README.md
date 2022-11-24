@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @noms1d
+- 👀 I started my IT-life as an system administrator.
+- 🌱 I’m currently deciding to swap over to learn coding.
+- 📫 dm me on twitter @noms1d
